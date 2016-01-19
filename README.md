@@ -20,7 +20,7 @@ Margarita Kim  /  mgkrio@gmail.com
 
 Binh Nguyen  / 4nqbinh@gmail.com
 
-Yuri Rivera / 
+Yuri Rivera / ???  
 
 Steven Sookraj  / stevensookraj@yahoo.com
 

@@ -20,7 +20,7 @@ Michael Gonzalez /  gonzalez.a.michael@gmail.com    /  832-410-5231
 
 Margarita Kim  /  mgkrio@gmail.com  /  713-443-6915
 
-Binh Nguyen  / 4nqbinh@gmail.com  /  
+Binh Nguyen  / 4nqbinh@gmail.com  /  713-972-2007
 
 Yuri Rivera / rvngrangel@aol.com /  409-370-8216
 
